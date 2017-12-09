@@ -1,0 +1,1 @@
+# lojaIFC2info1
